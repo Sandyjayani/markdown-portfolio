@@ -1,2 +1,2 @@
-**Willingness to learn**
-**Optimism**
+* **Willingness to learn**
+* **Optimism**
